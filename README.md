@@ -8,6 +8,5 @@
 - @ rosesnnblood  !  ;3 the leon to my ada , the vi to my caitlyn , and the max to my chloe ><. Im usually talking to them. I might have "dniuliam" in my name SORRY. i love liam thats my boi ily
 - i dont like talking during my episodes.
 - im currently looking for a ggf.. guys hmu pls
-- https://open.spotify.com/track/2tew75PVGb8RnuswH0L7yf
-
+-Saw , resident evil , yellowjackets , anora , terrifier are my HYPERFIXATIONS. WILL yap about them all day.
  ![1024_anora-1](https://github.com/user-attachments/assets/fdd4e733-f087-44fb-8ccd-51cae4b02cca)
