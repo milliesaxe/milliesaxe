@@ -9,4 +9,6 @@
 - i dont like talking during my episodes.
 - im currently looking for a ggf.. guys hmu pls
 -Saw , resident evil , yellowjackets , anora , terrifier are my HYPERFIXATIONS. WILL yap about them all day.
+- ok bai i hate you all go kill yourself please /srs ok im joking.
+
  ![1024_anora-1](https://github.com/user-attachments/assets/fdd4e733-f087-44fb-8ccd-51cae4b02cca)
