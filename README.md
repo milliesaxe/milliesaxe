@@ -12,4 +12,5 @@
 -Saw , resident evil , yellowjackets , anora , terrifier are my HYPERFIXATIONS. WILL yap about them all day.
 - i love boobies ;p
 
- ![1024_anora-1](https://github.com/user-attachments/assets/fdd4e733-f087-44fb-8ccd-51cae4b02cca)
+  ![oceansjonas-anora](https://github.com/user-attachments/assets/23fc5897-f51c-4089-9776-05210c616d8f)
+
