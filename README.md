@@ -6,6 +6,7 @@
 
 
 - JILL / amanda !! ! anora x vanyas d1 shipper >< **NONSHARING AMANDA YOUNG , SIENNA SHAW , ADA WONG , AMBER FEREEMAN, AND ANORA MIKHEEVA YUME.**  . THEY / THEM . But dean , liam, and deans friends can use she/her on me;p , intersex. Heavy fem pref . WLW , 16 turning 17 july 21st. DONT CALL ME MILLIE! use AMANDA/JILL/SIDNEY on me please! I OFFICIALLY made the resident evil ponytown spot. C+H , W2I , SHIPS INT ! i love my bestfriend dean !! hi boi !! . Im single. IM GEEKED!!! im a horny fucker. SIENNA SHAWS #1 FAN SINCE 2024 , TERRIFIER FANS INT ! IM OFTEN OFFTAB.  W2I IS RECCOMENDED. C+H FREELY UNLESS STATED. I SUFFER WITH DSYELXIA. be paitent with me. Check SP for moree! milliesaxe on all socials with living dead girl as the display. I speak english , spanish , and russian. I prefer english tho.
+- my alltime MAIN fictkin is **JILL VALENTINE.** she is literally me. dont play. DOUBLES DNI. **BEFORE YOU ASK, I AM NOT. A SYSTEM.**
 - @ rosesnnblood  !  ;3 the leon to my ada , the vi to my caitlyn , and the max to my chloe ><. Im usually talking to them. I might have "dniuliam" in my name SORRY. i love liam thats my boi ily
 - do NOT take inspo from any of my style. DO NOT copy, i will find you.
 - i dont like talking during my episodes.
