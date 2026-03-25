@@ -12,7 +12,7 @@
 - do NOT take inspo from any of my style. DO NOT copy, i will find you.
 - Do NOT come up to me when im with regina (tier 4 supporter :p ily btw) Please just w2i, dont c+h unless regina knows you !.
 - im currently looking for a ggf.. guys hmu pls
--Saw , resident evil , yellowjackets , anora , terrifier are my HYPERFIXATIONS. WILL yap about them all day.
+-Saw , resident evil , yellowjackets , anora , terrifie , trick r treat , r are my HYPERFIXATIONS. WILL yap about them all day.
 - i love boobies ;p
 
   ![oceansjonas-anora](https://github.com/user-attachments/assets/23fc5897-f51c-4089-9776-05210c616d8f)
