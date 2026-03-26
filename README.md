@@ -10,7 +10,7 @@
 - my alltime MAIN fictkin is **JILL VALENTINE.** she is literally me. dont play. DOUBLES DNI. **BEFORE YOU ASK, I AM NOT. A SYSTEM.** other jill cosplayers please iwecaution. I May be a little uncomfy. sorry.
 - @ rosesnnblood  !  ;3 the leon to my ada , the vi to my caitlyn , and the max to my chloe ><. Im usually talking to them. I might have "dniuliam" in my name SORRY. i love liam thats my boi ily
 - do NOT take inspo from any of my style. DO NOT copy, i will find you.
-- Do NOT come up to me when im with regina (tier 4 supporter :p ily btw) Please just w2i, dont c+h unless regina knows you !.
+- Do NOT come up to me when im with regina (tier 4 supporter :p ily btw) Please just w2i, dont c+h unless regina knows you !. unless youre in my party.
 - im currently looking for a ggf.. guys hmu pls
 -Saw , resident evil , yellowjackets , anora , terrifie , trick r treat , r are my HYPERFIXATIONS. WILL yap about them all day.
 - i love boobies ;p
