@@ -9,11 +9,9 @@
 - **BPD LOOSSEERR, always iwec(caution) unless i seem in a good mood.**. PROSHIP DNI. DNIDNIDNI ;/. dni racists. Weirdooss.. **VOX / HAZBIN HOTEL / HELLUVA BOSS FANS IWEECAUTION.** if you think im simply replacing you with my other friends, even tho you have like 9000 other friends you talk to. DNI?? like shut the fuck upp.. i may leave you on read / ghost you when im literally not ok, and i heavily apologize. PLEASE remind me to answer your message and i will.
 - nicknames are ok
 - hi ok please dont think im weird i love you all im actually so nice when im in a good mood
-- my 2 MAIN fictkins  is **SAM FRASER (MAIN MAIN 1ST)** **JILL VALENTINE.(2ND)** she is literally me. dont play. DOUBLES DNI. **BEFORE YOU ASK, I AM NOT. A SYSTEM.** other sam, and jill cosplayers please iwecaution. I May be a little uncomfy. sorry.
+- my 2 MAIN fictkins  is **SAM FRASER (MAIN MAIN 1ST)** **JILL VALENTINE.(2ND)** theyreliterally me. dont play. DOUBLES DNI. **BEFORE YOU ASK, I AM NOT. A SYSTEM.**
 - ships that can int ; **Lynnmanda** , **JackieShauna** , **LottieNat** , Jess X Faith / grace , chainshipping , coffinshipping , harperwong , cleon , brit X mallick , **CLARA X MILLIER (my babies)**.
 - ilmfriends smsm. PONYTOWN PARTY ILY !
-- do NOT take inspo from any of my style. DO NOT copy, i will find you.
-- pls try not to come up to me when im with regina (tier 4 supporter :p ily btw) Please just w2i, dont c+h unless regina knows you !. unless youre in my party.
 -Saw , resident evil , yellowjackets , anora , terrifier , trick r treat , r are my HYPERFIXATIONS. WILL yap about them all day.
 - i love boobies ;p
 
