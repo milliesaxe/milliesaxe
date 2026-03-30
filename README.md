@@ -9,6 +9,7 @@
 - **BPD LOOSSEERR, always iwec(caution) unless i seem in a good mood.**. PROSHIP DNI. DNIDNIDNI ;/. dni racists. Weirdooss.. **VOX / HAZBIN HOTEL / HELLUVA BOSS FANS IWEECAUTION.** if you think im simply replacing you with my other friends, even tho you have like 9000 other friends you talk to. DNI?? like shut the fuck upp.. i may leave you on read / ghost you when im literally not ok, and i heavily apologize. PLEASE remind me to answer your message and i will.
 - nicknames are ok
 - hi ok please dont think im weird i love you all im actually so nice when im in a good mood
+- join da yellowjackets server NOW. https://discord.gg/p3XddNf3T
 - my 2 MAIN fictkins  is **SAM FRASER (MAIN MAIN 1ST)** **JILL VALENTINE.(2ND)** theyreliterally me. dont play. DOUBLES DNI. **BEFORE YOU ASK, I AM NOT. A SYSTEM.**
 - ships that can int ; **Lynnmanda** , **JackieShauna** , **LottieNat** , Jess X Faith / grace , chainshipping , coffinshipping , harperwong , cleon , brit X mallick , **CLARA X MILLIER (my babies)** , chrisker , enrico x wesker, valenfield, sheva x jill <3. any ships can int unless its proship / illgal. no need to ask if u can c+h with me because you ship an ok ship !
 - ilmfriends smsm. PONYTOWN PARTY ILY !
