@@ -17,9 +17,7 @@
 -Saw , resident evil , yellowjackets , anora , terrifier , trick r treat , r are my HYPERFIXATIONS. WILL yap about them all day.
 - i love boobies ;p
 
-  ![oceansjonas-anora](https://github.com/user-attachments/assets/23fc5897-f51c-4089-9776-05210c616d8f)
+![tumblr_11ae3a571e4a5c968f517d3ba7c1a4ee_d5aef1d4_1280](https://github.com/user-attachments/assets/e922e17c-341f-4b42-8753-91d9602f208c)
 
-ME AND REGINA !!
-  ![IMG_3363](https://github.com/user-attachments/assets/6d3dc3a8-9504-43dc-a685-865fec799311)
 
 
