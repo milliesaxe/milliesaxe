@@ -12,8 +12,10 @@
 - im quite ignorant/rude on purpose. Im not really sorry but it depends on who you are ;/ my whole personailty is saw , my love lottie , and bubblegum bitch-marina, 
 - join da yellowjackets server NOW. https://discord.gg/p3XddNf3T
 - my 2 MAIN fictkins  is **SAM FRASER (MAIN MAIN 1ST)** **JILL VALENTINE.(2ND)** theyreliterally me. dont play. DOUBLES DNI. **BEFORE YOU ASK, I AM NOT. A SYSTEM.**
+- 
 -Saw , resident evil , yellowjackets , anora , terrifier , trick r treat , r are my HYPERFIXATIONS. WILL yap about them all day.
 - if u dont like that i yume with amanda just fuck off
+- i luvv luv luv lynnmanda sososo much !!! ;3. My selfinsert in saw is named benny !! shes me >< 
 
 ![tumblr_11ae3a571e4a5c968f517d3ba7c1a4ee_d5aef1d4_1280](https://github.com/user-attachments/assets/e922e17c-341f-4b42-8753-91d9602f208c)
 
