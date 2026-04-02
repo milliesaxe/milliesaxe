@@ -15,11 +15,13 @@
 - 
 -Saw , resident evil , yellowjackets , anora , terrifier , trick r treat , r are my HYPERFIXATIONS. WILL yap about them all day.
 - if u dont like that i yume with amanda just fuck off
-- i luvv luv luv lynnmanda sososo much !!! ;3.
+- - dont bite the hand that fingers you or wtv
+ - i luvv luv luv lynnmanda sososo much !!! ;3.
+![tumblr_11ae3a571e4a5c968f517d3ba7c1a4ee_d5aef1d4_1280](https://github.com/user-attachments/assets/e922e17c-341f-4b42-8753-91d9602f208c)
+
 -  My selfinsert in saw is named benny !! shes me >< image below is yume slop ok. MY BABIES I LUVV AMANDA SOSOSOSOS MUCH. we got married ok i swear
 - <img width="643" height="445" alt="Untitled544_20260401192842" src="https://github.com/user-attachments/assets/74b55f73-19f3-4bf5-9e2a-d5da28f666b3" />
-- dont bite the hand that fingers you or wtv
-![tumblr_11ae3a571e4a5c968f517d3ba7c1a4ee_d5aef1d4_1280](https://github.com/user-attachments/assets/e922e17c-341f-4b42-8753-91d9602f208c)
+
 
 
 
