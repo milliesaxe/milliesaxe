@@ -8,11 +8,11 @@
 - **AMANDA / JILL / SIDNEY** !! ! . THEY / THEM . . intersex. Heavy fem pref . WLW , , 16 turning 17 july 21st.. DONT CALL ME MILLIE! use AMANDA/JILL/SIDNEY on me please! . . I OFFICIALLY made the resident evil ponytown spot. . C+H , W2I , SHIPS INT ! . . Im single. . IM GEEKED!!! im a horny fucker. .  IM OFTEN OFFTAB . .  W2I IS RECCOMENDED. . C+H FREELY UNLESS STATED. . I SUFFER WITH DSYELXIA. be paitent with me. . . Check SP for moree! milliesaxe on all socials with living dead girl as the display.. I speak english , spanish , and russian. I prefer english tho.. . .AMANDA is a very much preferred name, but you can choose any names. I DO yume with amanda young even tho i go by amanda ;/. . Im a clingy girl towards some friends..AMANDAYOUNG AMANDAYOUNGAMANDAYOUNG THATS MY GF THATS NY GF MYBABY MYBABY SHES SO BABY. . LynnManda, and lottienat are my comfort sbips. i lowkey need a lynn to my amanda , and a lottie ro my nat lowyuri
 
 -https://rentry.co/amandayoungluver
-- **BPD LOOSSEERR, always iwec(caution)**. PROSHIP DNI. DNIDNIDNI ;/. dni racists. Weirdooss.. **VOX / HAZBIN HOTEL / HELLUVA BOSS FANS IWEECAUTION.** if you think im simply replacing you with my other friends, even tho you have like 9000 other friends you talk to. DNI?? like shut the fuck upp.. i may leave you on read / ghost you when im literally not ok, and i heavily apologize. PLEASE remind me to answer your message and i will.
+
+-i sometimes leave people on read guelp
 
 . . . . .[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316agiybjugelgby7uld7gpf4d6e&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)] . . . . . . . 
  -  My selfinsert in saw is named benny !! shes me >< MY BABIES I LUVV AMANDA SOSOSOSOS MUCH. we got married ok i swear
--Saw , resident evil , yellowjackets , anora , terrifier , trick r treat , r are my HYPERFIXATIONS. WILL yap about them all day.
 - if u dont like that i yume with amanda just fuck off
  - i luvv luv luv lynnmanda sososo much !!! ;3.
 ![tumblr_11ae3a571e4a5c968f517d3ba7c1a4ee_d5aef1d4_1280](https://github.com/user-attachments/assets/e922e17c-341f-4b42-8753-91d9602f208c)
