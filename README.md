@@ -11,7 +11,7 @@
 - i have many bestbest friends ! @/peterstrahmm / @/riddledbatz ! hihihihih
 - **DONT ASK TO USE MY SUPPORTER .**
 
--https://rentry.co/amandayoungluver . . MADE BY MATTHEW !
+-https://rentry.co/amandayoungluver . . MADE BY MATTHEW ! . https://rentry.co/hellpistol ME AND MATTHEW !!
 
 -i sometimes leave people on read guelp. I have BPD, please keep in mind that my mood swings are pretty often, so pleasseee be paitent with me. 
 
