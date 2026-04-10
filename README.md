@@ -5,11 +5,14 @@
 
 **' Fix me. Fix me, motherfucker! '**
 
-- **AMANDA / JILL / SIDNEY** !! ! . THEY / THEM . . intersex. Heavy fem pref . WLW , , 16 turning 17 july 21st.. dont call me millie pls . . I OFFICIALLY made the resident evil ponytown spot. . C+H , W2I , SHIPS INT ! . . Im single. . IM GEEKED!!! im a horny fucker. .  IM OFTEN OFFTAB . .  W2I IS RECCOMENDED. . C+H HEAVILY ENC! anyone can c+h anytime, anywhere ! dont be afraid to c+h even when i have *dniu__*. . I SUFFER WITH DSYELXIA. be paitent with me. . . Check SP for moree! milliesaxe on all socials with living dead girl as the display.. I speak english , spanish , and russian. I prefer english tho.. . .AMANDA is a very much preferred name, but you can choose any names. I DO yume with amanda young even tho i go by amanda ;/. . Im a clingy girl towards some friends..AMANDAYOUNG AMANDAYOUNGAMANDAYOUNG THATS MY GF THATS NY GF MYBABY MYBABY SHES SO BABY. .
+- **AMANDA / JILL / SIDNEY** !! ! . THEY / THEM . . intersex. Heavy fem pref . WLW , , 16 turning 17 july 21st.. dont call me millie pls . . I OFFICIALLY made the resident evil ponytown spot. . C+H , W2I , SHIPS INT ! . . Im single. . IM GEEKED!!! im a horny fucker. .  IM OFTEN OFFTAB . .  W2I IS RECCOMENDED. . C+H HEAVILY ENC! anyone can c+h anytime, anywhere ! dont be afraid to c+h even when i have *dniu__*. . I SUFFER WITH DSYELXIA. be paitent with me. . . Check SP for moree! milliesaxe on all socials with living dead girl as the display.. I speak english , spanish , and russian. I prefer english tho.. . .AMANDA is a very much preferred name, but you can choose any names. I DO yume with amanda young even tho i go by amanda ;/. . 
+- AMANDAYOUNG AMANDAYOUNGAMANDAYOUNG THATS MY GF THATS NY GF MYBABY MYBABY SHES SO BABY. .
 - dont flirt with me if youre 15-, or 18+. this is common sense but PLEASE. 
 - Lynnmanda is my alltime fav ship . . i may talk about it alot, and i apologize ! theyve been my hyperfixation since 2017!
 - i have many bestbest friends ! @/peterstrahmm / @/riddledbatz ! hihihihih
 - **DONT ASK TO USE MY SUPPORTER .**
+- i mmmmight move on accident because i drop my phone on my keyboard okay
+- i love making friends, plsplspls ask to be friends ! i prefer if u have discord since im not really active on anything else
 
 -https://rentry.co/amandayoungluver . . MADE BY MATTHEW ! . https://rentry.co/hellpistol ME AND MATTHEW !!
 
