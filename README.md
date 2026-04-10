@@ -10,7 +10,7 @@
 - dont flirt with me if youre 15-, or 18+. this is common sense but PLEASE. 
 - Lynnmanda is my alltime fav ship . . i may talk about it alot, and i apologize ! theyve been my hyperfixation since 2017!.
 - My current hyperfixation (im autistic) is saw ! if u like saw never be afraid to sit with me, or match as ships ! always send me a whisper if u wanna int unless yk im obviously ontab
-- i have many bestbest friends ! @/peterstrahmm / @/riddledbatz ! hihihihih
+- i have many bestbest friends ! @/peterstrahmm / @/riddledbatz , @/LumberDean ! hihihihih . i did not tag them okay
 - **DONT ASK TO USE MY SUPPORTER .**
 - i mmmmight move on accident because i drop my phone on my keyboard okay
 - i love making friends, plsplspls ask to be friends ! i prefer if u have discord since im not really active on anything else
