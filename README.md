@@ -6,11 +6,13 @@
 **' Fix me. Fix me, motherfucker! '**
 
 - **AMANDA / JILL / SIDNEY** !! ! . THEY / THEM . . intersex. Heavy fem pref . WLW , , 16 turning 17 july 21st.. dont call me millie pls . . I OFFICIALLY made the resident evil ponytown spot. . C+H , W2I , SHIPS INT ! . . Im single. . IM GEEKED!!! im a horny fucker. .  IM OFTEN OFFTAB . .  W2I IS RECCOMENDED. . C+H HEAVILY ENC! anyone can c+h anytime, anywhere ! dont be afraid to c+h even when i have *dniu__*. . I SUFFER WITH DSYELXIA. be paitent with me. . . Check SP for moree! milliesaxe on all socials with living dead girl as the display.. I speak english , spanish , and russian. I prefer english tho.. . .AMANDA is a very much preferred name, but you can choose any names.
+- seeing rob zombie 9/14/26 :3
 - I LOVELOVELOVEE flirting, and saying we should get together towards women thats nearly my age ! ><
 - Lynnmanda is my alltime fav ship . . i may talk about it alot, and i apologize ! theyve been my hyperfixation since 2017!.
 - My current hyperfixation (im autistic) is saw ! if u like saw never be afraid to sit with me, or match as ships ! always send me a whisper if u wanna int unless yk im obviously ontab
 - i have many bestbest friends ! @/peterstrahmm / @/riddledbatz , @/LumberDean ! hihihihih . i did not tag them okay
 - **DONT ASK TO USE MY SUPPORTER .**
+- im probably gonna meet shawnee smith this july for my bday ! if i dont i will QUIT life. 
 - i mmmmight move on accident because i drop my phone on my keyboard okay
 - i love making friends, plsplspls ask to be friends ! i prefer if u have discord since im not really active on anything else
 
