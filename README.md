@@ -9,7 +9,7 @@
 - seeing rob zombie 9/14/26 :3
 - I LOVELOVELOVEE flirting, and saying we should get together towards women thats my age ! ><
 - Lynnmanda is my alltime fav ship . . i may talk about it alot, and i apologize ! theyve been my hyperfixation since 2017!.
-- My current hyperfixation (im autistic) is saw ! if u like saw never be afraid to sit with me, or match as ships ! always send me a whisper if u wanna int unless yk im obviously ontab
+- My current hyperfixation (im autistic) is saw, and bloodwash ! ! if u like saw / bloodwash (puppetcombo) never be afraid to sit with me, or match as ships ! always send me a whisper if u wanna int unless yk im obviously ontab
 - i have many bestbest friends ! @/peterstrahmm / @/riddledbatz , @/LumberDean ! hihihihih . i did not tag them okay
 - **DONT ASK TO USE MY SUPPORTER .**
 - im probably gonna meet shawnee smith this july for my bday ! if i dont i will QUIT life. 
