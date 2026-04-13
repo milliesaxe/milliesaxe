@@ -9,6 +9,8 @@
 - seeing rob zombie 9/14/26 :3
 - I LOVELOVELOVEE flirting, and saying we should get together towards women thats my age ! ><
 - ![tankajahari](https://github.com/user-attachments/assets/3c6b3ec6-cce5-43d3-9e4d-ef192becff61)
+- ![sal](https://github.com/user-attachments/assets/26aa835a-e947-4298-a5f1-8297595027e5)
+
 
 - Lynnmanda is my alltime fav ship . . i may talk about it alot, and i apologize ! theyve been my hyperfixation since 2017!.
 - My current hyperfixation (im autistic) is saw, and bloodwash ! ! if u like saw / bloodwash (puppetcombo) never be afraid to sit with me, or match as ships ! always send me a whisper if u wanna int unless yk im obviously ontab
