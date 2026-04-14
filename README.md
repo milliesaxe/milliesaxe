@@ -7,11 +7,8 @@
 
 - **AMANDA / JILL / SIDNEY** !! ! . THEY / THEM . . intersex. Heavy fem pref . WLW , , 16 turning 17 july 21st.. dont call me millie pls . . I OFFICIALLY made the resident evil ponytown spot. . C+H , W2I , SHIPS INT ! . . Im single. . IM GEEKED!!! im a horny fucker. .  IM OFTEN OFFTAB . .  W2I IS RECCOMENDED. . C+H HEAVILY ENC! anyone can c+h anytime, anywhere ! dont be afraid to c+h even when i have *dniu__*. . I SUFFER WITH DSYELXIA. be paitent with me. . . Check SP for moree! milliesaxe on all socials with living dead girl as the display.. I speak english , spanish , and russian. I prefer english tho.. . .AMANDA is a very much preferred name, but you can choose any names.
 - seeing rob zombie 9/14/26 :3
-- I LOVELOVELOVEE flirting, and saying we should get together towards women thats my age ! ><
-- ![tankajahari](https://github.com/user-attachments/assets/3c6b3ec6-cce5-43d3-9e4d-ef192becff61)
-- ![sal](https://github.com/user-attachments/assets/26aa835a-e947-4298-a5f1-8297595027e5)
-
-
+- I LOVELOVELOVEE flirting, and saying we should get together towards women thats my age !
+- 
 - Lynnmanda is my alltime fav ship . . i may talk about it alot, and i apologize ! theyve been my hyperfixation since 2017!.
 - My current hyperfixation (im autistic) is saw, and bloodwash ! ! if u like saw / bloodwash (puppetcombo) never be afraid to sit with me, or match as ships ! always send me a whisper if u wanna int unless yk im obviously ontab
 - i have many bestbest friends ! @/peterstrahmm / @/riddledbatz , @/impracticallymurr ! hihihihih . i did not tag them okay
@@ -32,6 +29,8 @@
  - **' It's all bullshit. It's all a fucking lie. And I'm just a pawn in your stupid games... '**
 ![tumblr_11ae3a571e4a5c968f517d3ba7c1a4ee_d5aef1d4_1280](https://github.com/user-attachments/assets/e922e17c-341f-4b42-8753-91d9602f208c)
 
+- ![tankajahari](https://github.com/user-attachments/assets/3c6b3ec6-cce5-43d3-9e4d-ef192becff61)
+- ![sal](https://github.com/user-attachments/assets/26aa835a-e947-4298-a5f1-8297595027e5)
 
 
 
