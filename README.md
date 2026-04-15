@@ -12,7 +12,7 @@
 - i can forget who u are alot, so dont get offended.
 - Lynnmanda is my alltime fav ship . . i may talk about it alot, and i apologize ! theyve been my hyperfixation since 2017!.
 - My current hyperfixation (im autistic) is saw, and bloodwash ! ! if u like saw / bloodwash (puppetcombo) never be afraid to sit with me, or match as ships ! always send me a whisper if u wanna int unless yk im obviously ontab
-- i have many bestbest friends ! @/peterstrahmm / @/riddledbatz , @/impracticallymurr ! hihihihih . i did not tag them okay
+- **i have hundreds of friends, but only 3 mattered to me .** ! @/peterstrahmm / @/riddledbatz , @/impracticallymurr , @/shotgunnur / 420biteme ! <3 . i did not tag them okay
 - **DONT ASK TO USE MY SUPPORTER .**
 - im probably gonna meet shawnee smith this july for my bday ! if i dont i will QUIT life. 
 - i mmmmight move on accident because i drop my phone on my keyboard okay
