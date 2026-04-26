@@ -8,7 +8,7 @@
 - **AMANDA / JILL / SIDNEY** !! ! . THEY / THEM . . intersex. Heavy fem pref . WLW , , 16 turning 17 july 21st.. dont call me millie pls . . I OFFICIALLY made the resident evil ponytown spot. . C+H , W2I , SHIPS INT ! . . Im single. . IM GEEKED!!! im a horny fucker. .  IM OFTEN OFFTAB . .  W2I IS RECCOMENDED. . C+H HEAVILY ENC! anyone can c+h anytime, anywhere ! dont be afraid to c+h even when i have *dniu__*. . I SUFFER WITH DSYELXIA. be paitent with me. . . Check SP for moree! milliesaxe on all socials with living dead girl as the display.. I speak english , spanish , and russian. I prefer english tho.. . .AMANDA is a very much preferred name, but you can choose any names.
 - seeing rob zombie 9/14/26 :3
 - im usually only talkative to my party, and friends -_-
-- ***im so inlove with my gorgeous girl, Lottie <3*** **ilmgfsm**
+- i love you regina..
 
 - if u talk in fonts, fuck off. Like seriously.. i cant read them because im dsylexic.
 - BYI ; keep in mind that sometimes i can be obsessed with you, and then start hating you. I often split and i APOLOGIZE
