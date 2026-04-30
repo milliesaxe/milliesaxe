@@ -5,33 +5,35 @@
 
 **' Fix me. Fix me, motherfucker! '**
 
-- **AMANDA / JILL / SIDNEY** !! ! . THEY / THEM . . intersex. Heavy fem pref . WLW , , 16 turning 17 july 21st.. dont call me millie pls . . I OFFICIALLY made the resident evil ponytown spot. . C+H , W2I , SHIPS INT ! . . Im single. . IM GEEKED!!! im a horny fucker. .  IM OFTEN OFFTAB . .  W2I IS RECCOMENDED. . C+H HEAVILY ENC! anyone can c+h anytime, anywhere ! dont be afraid to c+h even when i have *dniu__*. . I SUFFER WITH DSYELXIA. be paitent with me. . . Check SP for moree! milliesaxe on all socials with living dead girl as the display.. I speak english , spanish , and russian. I prefer english tho.. . .AMANDA is a very much preferred name, but you can choose any names.
-- seeing rob zombie 9/14/26 :3
-- im usually only talkative to my party, and friends
-- oook im more comfy with females because #traumatized
-- # if u see me cosplaying someone thats problemmatic problematic PLS KNOW I DONT SUPPORT THEM NOOO ok
-- ## ~~my github doesnt look good because idgaf lwokey~~
-
-- if u talk in fonts, fuck off. Like seriously.. i cant read them because im dsylexic.
-- BYI ; keep in mind that sometimes i can be obsessed with you, and then start hating you. I often split and i APOLOGIZE
-- I LOVELOVELOVEE flirting
-- i can forget who u are alot, so dont get offended.
-- Lynnmanda is my alltime fav ship . . i may talk about it alot, and i apologize ! theyve been my hyperfixation since 2017!.
-- My current hyperfixation (im autistic) is saw, and bloodwash ! ! if u like saw / bloodwash (puppetcombo) never be afraid to sit with me, or match as ships ! always send me a whisper if u wanna int unless yk im obviously ontab
+- ## AMANDA , JILL , SIDNEY !  nicknames are ok, and i dont respond to millie. Sorrysory
+- ~~Lesbian , intersex , and i use they/them. I look more female, and sound female so i prefer fem terms ^_^ male terms are ok too, but i STRICTLY use they/them.~~
+- Im single, and i make freaky jokes.
+- # Seeing rob zombie 9/14/26:3
+- im usually very talkative when u get to know me ^_^
+- # ~~if u see me cosplaying someone thats problemmatic problematic PLS KNOW I DONT SUPPORT THEM NOOO ok~~
+- ## i remade my github oki
+           .𖥔 ݁ ˖🦇 ݁˖ ݁𖥔 .. ݁₊ 🩸⊹ . ݁💉˖ . ݁
+- ## Im very very very dsylexic, and i cannot read fonts. Please try not to use them around me!
+- ## i have BPD, and my splits are very often. I try to not int with anyone during them. SOSOSO sory:(
+- ## i have chronic migraines, and it does affect how i go on with my day^_^ im so sorry if i keave when talking to you:<
+- I have horrible memory, so when u change your username, style, and you dont have any links i will forget who u are^_^ sorry sorry sorry
+- ## Lynnmanda from saw is my alltime fav ship! i will talk about them often, and im sorry ;/. Lynns/Amandas feel free to int ^_^ i have Amanda, and lynn:3
+- ## My hyperfixations arrreeeee!! SAW, Something very bad is going to happen, And ny oc, Wilbur:3
 - **i have hundreds of friends, but only 3 mattered to me .** ! @/peterstrahmm / @/riddledbatz , @/impracticallymurr , @/shotgunnur / 420biteme ! <3 . i did not tag them okay
-- **DONT ASK TO USE MY SUPPORTER .**
-- im probably gonna meet shawnee smith this july for my bday ! if i dont i will QUIT life. 
-- i mmmmight move on accident because i drop my phone on my keyboard okay
-- i love making friends, plsplspls ask to be friends ! i prefer if u have discord since im not really active on anything else
+- Please do ask to match skins ! ! ! i lovee love lvoe lvoe matching sosos much!! never be afraid to ask ookko
+- I love making friends, and i fr need more friends too. I prefer if u have discord because thats what im mostly on but i have alot of socials
 
--https://rentry.co/amandayoungluver . . MADE BY MATTHEW ! . https://rentry.co/hellpistol ME AND MATTHEW !!
+-[rentry](https://rentry.co/amandayoungluver) , , [Strawpage](https://milliesaxeee.straw.page) , , [rentry 2](https://rentry.co/hellpistol)  ! All rentrys made by Matthew / @/shotgunner !! HIIH
 
--i sometimes leave people on read guelp. I have BPD, please keep in mind that my mood swings are pretty often, so pleasseee be paitent with me. 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=316agiybjugelgby7uld7gpf4d6e&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false">
+  </a>
+</p>
 
-. . . . .[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316agiybjugelgby7uld7gpf4d6e&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)] . . . . . . . 
- -  My selfinsert in saw is named benny !! shes me >< MY BABIES I LUVV AMANDA SOSOSOSOS MUCH. we got married ok i swear
-- if u dont like that i yume with amanda just fuck off
- - i luvv luv luv lynnmanda sososo much !!! ;3.
+- ## im a VERY VERY VERY nonsharing amanda young yumeshipper. Im also a laura hunter fictkin !! Other saw yumeshippers, and fictkins int freely^_^
+- My saw selfinsert is named benny ! ! ! benny and amands ship name is Needleguilt !!
+- Im very very very pbsessed with amanda ok
 
  - **' It's all bullshit. It's all a fucking lie. And I'm just a pawn in your stupid games... '**
 ![tumblr_11ae3a571e4a5c968f517d3ba7c1a4ee_d5aef1d4_1280](https://github.com/user-attachments/assets/e922e17c-341f-4b42-8753-91d9602f208c)
