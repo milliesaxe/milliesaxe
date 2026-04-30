@@ -12,7 +12,8 @@
 - im usually very talkative when u get to know me ^_^
 -  ~~if u see me cosplaying someone thats problemmatic problematic PLS KNOW I DONT SUPPORT THEM NOOO ok~~
 - i remade my github okay
-           .𖥔 ݁ ˖🦇 ݁˖ ݁𖥔 .. ݁₊ 🩸⊹ . ݁💉˖ . ݁
+           
+    .𖥔 ݁ ˖🦇 ݁˖ ݁𖥔 .. ݁₊ 🩸⊹ . ݁💉˖ . ݁
 -  Im very very very dsylexic, and i cannot read fonts. Please try not to use them around me!
 -  i have BPD, and my splits are very often. I try to not int with anyone during them. SOSOSO sory:(
 -  i have chronic migraines, and it does affect how i go on with my day^_^ im so sorry if i keave when talking to you:<
