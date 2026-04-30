@@ -39,7 +39,7 @@
 ![tumblr_11ae3a571e4a5c968f517d3ba7c1a4ee_d5aef1d4_1280](https://github.com/user-attachments/assets/e922e17c-341f-4b42-8753-91d9602f208c)
 
 
-<img width="100" height="50" alt="tankajahari" src="https://github.com/user-attachments/assets/23bf8d7a-2bfb-4eae-8a50-e71e4c8f0b90" />
+<img width="150" height="50" alt="tankajahari" src="https://github.com/user-attachments/assets/23bf8d7a-2bfb-4eae-8a50-e71e4c8f0b90" />
 
 
 
