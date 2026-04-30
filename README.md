@@ -1,7 +1,7 @@
 ## ' werewolf amanda >< '
 
 
-  ![amanda-young-saw](https://github.com/user-attachments/assets/3d6d9685-7e83-4f7a-a978-2da34e2d3365)
+  <img width="800" height="300" alt="amanda" src="https://github.com/user-attachments/assets/45658f68-85f5-4df2-981f-d9ccf7c784e5" />
 
 **' Fix me. Fix me, motherfucker! '**
 
@@ -36,10 +36,11 @@
 - Im very very very pbsessed with amanda ok
 
  - **' It's all bullshit. It's all a fucking lie. And I'm just a pawn in your stupid games... '**
-![tumblr_11ae3a571e4a5c968f517d3ba7c1a4ee_d5aef1d4_1280](https://github.com/user-attachments/assets/e922e17c-341f-4b42-8753-91d9602f208c)
+<img width="640" height="342" alt="amanda-young-freedom" src="https://github.com/user-attachments/assets/83ec6c10-38ed-48bc-9ca4-5ae1957074e1" />
 
 
-<img width="150" height="50" alt="tankajahari" src="https://github.com/user-attachments/assets/23bf8d7a-2bfb-4eae-8a50-e71e4c8f0b90" />
+
+- <img width="200" height="50" alt="tankajahari" src="https://github.com/user-attachments/assets/23bf8d7a-2bfb-4eae-8a50-e71e4c8f0b90" />
 
 
 
