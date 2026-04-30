@@ -5,13 +5,13 @@
 
 **' Fix me. Fix me, motherfucker! '**
 
-- ## AMANDA , JILL , SIDNEY !  nicknames are ok, and i dont respond to millie. Sorrysory
+- **AMANDA , JILL , SIDNEY !  nicknames are ok, and i dont respond to millie. Sorrysory**
 - ~~Lesbian , intersex , and i use they/them. I look more female, and sound female so i prefer fem terms ^_^ male terms are ok too, but i STRICTLY use they/them.~~
 - Im single, and i make freaky jokes.
-- # Seeing rob zombie 9/14/26:3
+- **Seeing rob zombie 9/14/26:3**
 - im usually very talkative when u get to know me ^_^
-- # ~~if u see me cosplaying someone thats problemmatic problematic PLS KNOW I DONT SUPPORT THEM NOOO ok~~
-- i remade my github oki
+-  ~~if u see me cosplaying someone thats problemmatic problematic PLS KNOW I DONT SUPPORT THEM NOOO ok~~
+- i remade my github okay
            .𖥔 ݁ ˖🦇 ݁˖ ݁𖥔 .. ݁₊ 🩸⊹ . ݁💉˖ . ݁
 -  Im very very very dsylexic, and i cannot read fonts. Please try not to use them around me!
 -  i have BPD, and my splits are very often. I try to not int with anyone during them. SOSOSO sory:(
@@ -31,7 +31,7 @@
   </a>
 </p>
 
-- # im a VERY VERY VERY nonsharing amanda young yumeshipper. Im also a laura hunter fictkin !! Other saw yumeshippers, and fictkins int freely^_^
+- **im a VERY VERY VERY nonsharing amanda young yumeshipper. Im also a laura hunter fictkin !! Other saw yumeshippers, and fictkins int freely^_^**
 - My saw selfinsert is named benny ! ! ! benny and amands ship name is Needleguilt !!
 - Im very very very pbsessed with amanda ok
 
