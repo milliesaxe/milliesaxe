@@ -10,6 +10,7 @@
 - Im single, and i make freaky jokes.
 - **Seeing rob zombie 9/14/26:3**
 - im usually very talkative when u get to know me ^_^
+- ~~hello yes im a furry, ive been in thw furry fandom for like 7 years ok.~~
 -  ~~if u see me cosplaying someone thats problemmatic problematic PLS KNOW I DONT SUPPORT THEM NOOO ok~~
 - i remade my github okay
            
@@ -20,7 +21,7 @@
 - I have horrible memory, so when u change your username, style, and you dont have any links i will forget who u are^_^ sorry sorry sorry
 - Lynnmanda from saw is my alltime fav ship! i will talk about them often, and im sorry ;/. Lynns/Amandas feel free to int ^_^ i have Amanda, and lynn:3
 - My hyperfixations arrreeeee!! SAW, Something very bad is going to happen, And ny oc, Wilbur:3
-- **i have hundreds of friends, but only 3 mattered to me .** ! @/peterstrahmm / @/riddledbatz , @/impracticallymurr , @/shotgunnur / 420biteme ! <3 . i did not tag them okay
+- **i have hundreds of friends, but only 3 mattered to me .** ! @/peterstrahmm / @/riddledbatz , @/shotgunnur / 420biteme , @/impracticallymurr ! <3 . i did not tag them okay
 - Please do ask to match skins ! ! ! i lovee love lvoe lvoe matching sosos much!! never be afraid to ask ookko
 - I love making friends, and i fr need more friends too. I prefer if u have discord because thats what im mostly on but i have alot of socials
 
