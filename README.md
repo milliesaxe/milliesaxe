@@ -42,12 +42,19 @@
 
 
 
-- <img width="200" height="50" alt="tankajahari" src="https://github.com/user-attachments/assets/23bf8d7a-2bfb-4eae-8a50-e71e4c8f0b90" />
+- <img width="350" height="50" alt="tankajahari" src="https://github.com/user-attachments/assets/23bf8d7a-2bfb-4eae-8a50-e71e4c8f0b90" />
 - <img width="200" height="50" alt="sal" src="https://github.com/user-attachments/assets/1b9fc3e7-58c3-4538-b351-90a98678ff25" />
 
 
-;3 special shoutout to my alltime bestest friend ever, kayla! 
+
+
+- ;3 special shoutout to my alltime bestest friend ever, kayla! 
 ~~all screenshots from roblox is her, but the discord is from me (hi im the twink person ok.)~~
+<<img width="1112" height="218" alt="nicest way possible but your mic sucks" src="https://github.com/user-attachments/assets/5b0fb52c-de89-4561-94b3-7a66f99ad950" />
+<img width="200" height="200" alt="twnink" src="https://github.com/user-attachments/assets/53e094d8-53a8-4190-96cc-7de462f340e6" />
+<img width="200" height="200" alt="papi" src="https://github.com/user-attachments/assets/eed18957-e6c3-4953-b6ab-177046726fe2" />
+<img width="200" height="200" alt="kayla is my feast" src="https://github.com/user-attachments/assets/c3d235bb-3263-4561-9190-f2a8063dca13" />
+
 
 
 
