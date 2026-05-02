@@ -46,6 +46,10 @@
 - <img width="200" height="50" alt="sal" src="https://github.com/user-attachments/assets/1b9fc3e7-58c3-4538-b351-90a98678ff25" />
 
 
+;3 special shoutout to my alltime bestest friend ever, kayla! 
+~~all screenshots from roblox is her, but the discord is from me (hi im the twink person ok.)~~
+
+
 
 
 
