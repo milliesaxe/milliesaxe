@@ -25,7 +25,7 @@
 - Please do ask to match skins ! ! ! i lovee love lvoe lvoe matching sosos much!! never be afraid to ask ookko
 - I love making friends, and i fr need more friends too. I prefer if u have discord because thats what im mostly on but i have alot of socials
 
--[rentry](https://rentry.co/amandayoungluver) , , [Strawpage](https://milliesaxeee.straw.page) , , [rentry 2](https://rentry.co/hellpistol)  ! All rentrys made by Matthew / @/shotgunner !! HIIH
+- [Strawpage](https://milliesaxeee.straw.page) !!!
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
