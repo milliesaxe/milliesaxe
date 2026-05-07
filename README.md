@@ -4,7 +4,7 @@
 
 **' I thought this was a love story. But love stories don't feel like a countdown to a funeral. '**
 
-- **AMANDA , JILL , SIDNEY !  nicknames are ok, and i dont respond to millie. Sorrysory**
+- **AMANDA , RACHEL , SIDNEY !  nicknames are ok, and i dont respond to millie. Sorrysory**
 - ~~Lesbian , intersex , and i use they/them. I look more female, and sound female so i prefer fem terms ^_^ male terms are ok too, but i STRICTLY use they/them.~~
 - Im single, and i make freaky jokes.
 - **Seeing rob zombie 9/14/26:3**
