@@ -1,4 +1,4 @@
-## ' werewolf amanda >< '
+## ' werewolf amanda / rachel >< '
 
 <img width="800" height="400" alt="porchel" src="https://github.com/user-attachments/assets/e5d467b8-5c52-423e-8784-b755762f80af" />
 
