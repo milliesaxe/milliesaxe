@@ -1,9 +1,8 @@
 ## ' werewolf amanda >< '
 
+<img width="800" height="400" alt="porchel" src="https://github.com/user-attachments/assets/e5d467b8-5c52-423e-8784-b755762f80af" />
 
-  <img width="800" height="300" alt="amanda" src="https://github.com/user-attachments/assets/45658f68-85f5-4df2-981f-d9ccf7c784e5" />
-
-**' Fix me. Fix me, motherfucker! '**
+**' I thought this was a love story. But love stories don't feel like a countdown to a funeral. '**
 
 - **AMANDA , JILL , SIDNEY !  nicknames are ok, and i dont respond to millie. Sorrysory**
 - ~~Lesbian , intersex , and i use they/them. I look more female, and sound female so i prefer fem terms ^_^ male terms are ok too, but i STRICTLY use they/them.~~
@@ -33,12 +32,13 @@
   </a>
 </p>
 
-- **im a VERY VERY VERY nonsharing amanda young yumeshipper. Im also a laura hunter fictkin !! Other saw yumeshippers, and fictkins int freely^_^**
+- **my 2 main yumeships arreeee !! Rachel Harkin , and Amanda young ^_^ I am very very very nonsharing, doubles dni pls. ;//**
 - My saw selfinsert is named benny ! ! ! benny and amands ship name is Needleguilt !!
-- Im very very very pbsessed with amanda ok
+- Im very very very pbsessed with amanda and rachel ok
+- Rachel Harkin fictkin (i dont CARE if i selfship with her WHILE BEING A FICTKIN)
 
- - **' It's all bullshit. It's all a fucking lie. And I'm just a pawn in your stupid games... '**
-<img width="640" height="342" alt="amanda-young-freedom" src="https://github.com/user-attachments/assets/83ec6c10-38ed-48bc-9ca4-5ae1957074e1" />
+ - **' Something very bad is going to happen. I can feel it in the floorboards. I can hear it in the pipes. '**
+<img width="800" height="500" alt="portia and rachel - something very bad is going to happen icon" src="https://github.com/user-attachments/assets/a759806b-b801-428e-a367-41c79727bc9e" />
 
 
 
