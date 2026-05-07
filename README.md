@@ -37,7 +37,7 @@
 
 - **my 3 main yumeships arreeee !! Rachel Harkin , Amanda young , and Juliet starling ! ^_^ I am very very very nonsharing, doubles dni pls. ;//**
 - My saw selfinsert is named benny ! ! ! benny and amands ship name is Needleguilt !!
-- Im very very very pbsessed with amanda and rachel ok
+- Im very very very pbsessed with amanda , rachel and juliet. ok
 - Rachel Harkin fictkin (i dont CARE if i selfship with her WHILE BEING A FICTKIN)
 
  - **' Something very bad is going to happen. I can feel it in the floorboards. I can hear it in the pipes. '**
