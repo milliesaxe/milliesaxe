@@ -27,7 +27,9 @@
 - Please do ask to match skins ! ! ! i lovee love lvoe lvoe matching sosos much!! never be afraid to ask ookko
 - I love making friends, and i fr need more friends too. I prefer if u have discord because thats what im mostly on but i have alot of socials
 
-- [Strawpage](https://milliesaxe.straw.page) !!!
+- [Strawpage](https://milliesaxe.straw.page) !!! , , ,  [Strawpage 2](https://milliesaxee.straw.page) !!!!
+
+https://milliesaxee.straw.page
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
