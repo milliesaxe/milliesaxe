@@ -20,7 +20,7 @@
 </div>
 
 
-     .𖥔 ݁ ˖🦇 ݁˖ ݁𖥔 .. ݁₊ 🩸⊹ . ݁💉˖ . ݁
+                          .𖥔 ݁ ˖🦇 ݁˖ ݁𖥔 .. ݁₊ 🩸⊹ . ݁💉˖ . ݁
 -  Im very very very dsylexic, and i cannot read fonts. Please try not to use them around me!
 -  i have BPD, and my splits are very often. I try to not int with anyone during them. SOSOSO sory:(
 -  i have chronic migraines, and it does affect how i go on with my day^_^ im so sorry if i keave when talking to you:<
@@ -28,6 +28,7 @@
 - Lynnmanda from saw is my alltime fav ship! i will talk about them often, and im sorry ;/. Lynns/Amandas feel free to int ^_^ i have Amanda, and lynn:3
 - My hyperfixations arrreeeee!! SAW, Something very bad is going to happen, And ny oc, Wilbur:3
 - my friends are my world !
+- __Pibby Fortnite Ohio gc/partyꨄ︎__
 - Please do ask to match skins ! ! ! i lovee love lvoe lvoe matching sosos much!! never be afraid to ask ookko
 - I love making friends, and i fr need more friends too. I prefer if u have discord because thats what im mostly on but i have alot of socials
 
