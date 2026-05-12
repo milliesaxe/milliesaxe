@@ -13,7 +13,11 @@
 -  ~~if u see me cosplaying someone thats problemmatic problematic PLS KNOW I DONT SUPPORT THEM NOOO ok~~
 - i remade my github okay
            
- -    ![](https://komarev.com/ghpvc/?username=milliesaxe&color=940606&label=harkins+bloodline+curse&number=2000000000)
+<div align="center">
+
+![](https://img.shields.io/static/v1?label=HARKINS+BLOODLINE+CURSE&message=200&color=red)
+
+</div>
 
 
      .𖥔 ݁ ˖🦇 ݁˖ ݁𖥔 .. ݁₊ 🩸⊹ . ݁💉˖ . ݁
