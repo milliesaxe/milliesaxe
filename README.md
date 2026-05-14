@@ -9,7 +9,6 @@
 - Im single, and i make freaky jokes.
 - **Seeing rob zombie 9/14/26:3**
 - im usually very talkative when u get to know me ^_^
-- ~~hello yes im a furry, ive been in thw furry fandom for like 7 years ok.~~
 -  ~~if u see me cosplaying someone thats problemmatic problematic PLS KNOW I DONT SUPPORT THEM NOOO ok~~
 - i remade my github okay
            
@@ -28,7 +27,7 @@
 - Lynnmanda from saw is my alltime fav ship! i will talk about them often, and im sorry ;/. Lynns/Amandas feel free to int ^_^ i have Amanda, and lynn:3
 - My hyperfixations arrreeeee!! SAW, Something very bad is going to happen, And ny oc, Wilbur:3
 - my friends are my world !
-- __Pibby Fortnite Ohio gc/partyꨄ︎__
+- __Pibby Fortnite Ohio gc/partyꨄ︎ , ty hater gcꨄ︎__
 - Please do ask to match skins ! ! ! i lovee love lvoe lvoe matching sosos much!! never be afraid to ask ookko
 - I love making friends, and i fr need more friends too. I prefer if u have discord because thats what im mostly on but i have alot of socials
 
