@@ -4,7 +4,7 @@
 
 **' I thought this was a love story. But love stories don't feel like a countdown to a funeral. '**
 
-- **AMANDA , rachel , ji ll , sidney**
+- **AMANDA , rachel , jill , sidney**
 - Lesbian , intersex , fem terms / male terms are fine
 - Im sinegl
 - **Seeing rob zombie 9/14/26**
