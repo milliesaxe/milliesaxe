@@ -5,10 +5,9 @@
 **' I thought this was a love story. But love stories don't feel like a countdown to a funeral. '**
 
 - **AMANDA , RACHEL , SIDNEY !  nicknames are ok**
-- ~~Lesbian , intersex , and i use they/them. I look more female, and sound female so i prefer fem terms ^_^ male terms are ok too, but i STRICTLY use they/them.~~
+- Lesbian , intersex , fem terms / male terms are fine
 - Im single, and i make freaky jokes.
 - **Seeing rob zombie 9/14/26:3**
-- im usually very talkative when u get to know me ^_^
 -  ~~if u see me cosplaying someone thats problemmatic problematic PLS KNOW I DONT SUPPORT THEM NOOO ok~~
 - i remade my github okay
            
