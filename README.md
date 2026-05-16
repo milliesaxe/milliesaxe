@@ -1,14 +1,14 @@
-## ' werewolf amanda / rachel >< '
+## ' werewolf amanda ! ! '
 
 <img width="800" height="400" alt="porchel" src="https://github.com/user-attachments/assets/e5d467b8-5c52-423e-8784-b755762f80af" />
 
 **' I thought this was a love story. But love stories don't feel like a countdown to a funeral. '**
 
-- **AMANDA , RACHEL , SIDNEY !  nicknames are ok**
+- **AMANDA , rachel , ji ll , sidney**
 - Lesbian , intersex , fem terms / male terms are fine
-- Im single, and i make freaky jokes.
-- **Seeing rob zombie 9/14/26:3**
--  ~~if u see me cosplaying someone thats problemmatic problematic PLS KNOW I DONT SUPPORT THEM NOOO ok~~
+- Im sinegl
+- **Seeing rob zombie 9/14/26**
+- i kiss the people mentioend inm my prfoile everyday and everynight for goodlduck. #haraassment
 - i remade my github okay
            
 <div align="center">
@@ -19,16 +19,12 @@
 
 
                           .𖥔 ݁ ˖🦇 ݁˖ ݁𖥔 .. ݁₊ 🩸⊹ . ݁💉˖ . ݁
--  Im very very very dsylexic, and i cannot read fonts. Please try not to use them around me!
--  i have BPD, and my splits are very often. I try to not int with anyone during them. SOSOSO sory:(
--  i have chronic migraines, and it does affect how i go on with my day^_^ im so sorry if i keave when talking to you:<
-- I have horrible memory, so when u change your username, style, and you dont have any links i will forget who u are^_^ sorry sorry sorry
-- Lynnmanda from saw is my alltime fav ship! i will talk about them often, and im sorry ;/. Lynns/Amandas feel free to int ^_^ i have Amanda, and lynn:3
-- My hyperfixations arrreeeee!! SAW, Something very bad is going to happen, And ny oc, Wilbur:3
-- my friends are my world !
+-  Im veyr dsylexic, and i cannot read fonts sos
+-  i have BPD, and it affcts my sexy life. SOS need help
+-  i have chronic migraines, and it does affect how i go on with my day
+- do not be ky friend if youre not ready for my seciness
 - __Pibby Fortnite Ohio gc/partyꨄ︎ , ty hater gcꨄ︎__
-- Please do ask to match skins ! ! ! i lovee love lvoe lvoe matching sosos much!! never be afraid to ask ookko
-- I love making friends, and i fr need more friends too. I prefer if u have discord because thats what im mostly on but i have alot of socials
+- harassment towards my BITCHES mentioned in my profile. only I can harass them FUCK YOU ALL
 
 <div align="center">
 
@@ -42,10 +38,8 @@
   </a>
 </p>
 
-- **my 3 main yumeships arreeee !! Rachel Harkin , Amanda young , and Juliet starling ! ^_^ I am very very very nonsharing, doubles dni pls. ;//**
-- My saw selfinsert is named benny ! ! ! benny and amands ship name is Needleguilt !!
-- Im very very very pbsessed with amanda , rachel and juliet. ok
-- Rachel Harkin fictkin (i dont CARE if i selfship with her WHILE BEING A FICTKIN)
+- my maa in tumeship is amanda oyung i love amanda~~~ hello sexy beast ~~~ 
+- Im very very very pbsessed with amanda younf
 
  - **' Something very bad is going to happen. I can feel it in the floorboards. I can hear it in the pipes. '**
 <img width="800" height="500" alt="portia and rachel - something very bad is going to happen icon" src="https://github.com/user-attachments/assets/a759806b-b801-428e-a367-41c79727bc9e" />
