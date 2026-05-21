@@ -17,7 +17,7 @@ __boy__. but ONLY use __They/Them__
 - Ask for socials , but 90% of them are milliesaxe of some sort
 <div align="center">
 
-[Strawpage 1](https://milliesaxee.straw.page) - [Strawpage 2](https://milliesaxe.straw.page)
+[Strawpage 1](https://milliesaxee.straw.page) - [Strawpage 2](https://milliesaxe.straw.page) - [Rentry](https://rentry.co/milliesaxe)
 
 </div>
 
