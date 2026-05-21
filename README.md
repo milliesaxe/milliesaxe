@@ -12,6 +12,7 @@ __boy__. but ONLY use __They/Them__
 - Im lesbian , and aroace. Single (bmgf /j)
 - Yumeshipper , and fictkin
 - ~~petplayer (not in a problematic way~~
+- furry
 - im __MEXICAN , AMERICAN__ . English is my first language. I know very little spanish now (rip)
 - Ask for socials , but 90% of them are milliesaxe of some sort
 <div align="center">
