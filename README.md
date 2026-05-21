@@ -24,9 +24,10 @@ __boy__. but ONLY use __They/Them__
 <img width="1024" height="83" alt="bats" src="https://github.com/user-attachments/assets/2f24427f-c3dd-442e-9df6-d15b37f0095f" />
 
 - __BYI__ I have BPD , autism , Adhd , Chronic migraines, Dyslexia , and more !! . i MIGHT have scoliosis (99% chance i do)
-- __BYI 2__ I struggle with my tone, and i am NOT sensitive !! please dont take stuff to heart. If i ever make you feel sad please tell me so i can apologize
+- __BYI 2__ I struggle with my tone, and i am NOT sensitive.
 - __BYI 3__ I am __NOT__ a system , nor do i regress.
 - __BYI 4__ I make freaky jokes, if youre not comfy with them please tell me
+- __BYI 5__ __I am NOT nice.__ im in therapy and i go to my psychologist to HELP ME become nicer. I am only really nice towards MY friends. PlsPLS tell me if im rude so i can fix it.
 - __DNI__ ICE JOKES , MAGA , PROSHIPPERS , GROOMERS , RACISTS , HOMOPHOBICS , TRANSPHOBIC , ABLEISTS , Just freaks in general , Basic dnis ok
  <img width="1024" height="83" alt="divider" src="https://github.com/user-attachments/assets/0727d397-8e6e-4bfb-a69c-f9ffe8f41833" />
 
