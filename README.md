@@ -12,7 +12,7 @@ __boy__. but ONLY use __They/Them__
 - Im lesbian , and aroace. Single (bmgf /j)
 - Yumeshipper , and fictkin
 - ~~petplayer (not in a problematic way~~
-- im __MEXICAN , AMERICAN__ .
+- im __MEXICAN , AMERICAN__ . English is my first language. I know very little spanish now (rip)
 - Ask for socials , but 90% of them are milliesaxe of some sort
 <div align="center">
 
@@ -29,7 +29,7 @@ __boy__. but ONLY use __They/Them__
 - __BYI 4__ I make freaky jokes, if youre not comfy with them please tell me
 - __BYI 5__ __I am NOT nice.__ im in therapy and i go to my psychologist to HELP ME become nicer. I am only really nice towards MY friends. PlsPLS tell me if im rude so i can fix it.
 - __BYI 6__ I am on 11-12 prescribed pills, so be paitent with me. It sucks but i haveto di it for my own sanity
-- __DNI__ ICE JOKES , MAGA , PROSHIPPERS , GROOMERS , RACISTS , HOMOPHOBICS , TRANSPHOBIC , ABLEISTS , Just freaks in general , Basic dnis ok
+- __DNI__ ICE JOKES , MAGA , PROSHIPPERS , GROOMERS , RACISTS , HOMOPHOBICS , TRANSPHOBIC , ABLEISTS , ex friends , my exs , Just freaks in general , Basic dnis ok
  <img width="1024" height="83" alt="divider" src="https://github.com/user-attachments/assets/0727d397-8e6e-4bfb-a69c-f9ffe8f41833" />
 
  - I am usually with my __Party__ or __Friends__ .
@@ -37,7 +37,7 @@ __boy__. but ONLY use __They/Them__
  - __C+H FREELY ANYTIME !__ It doesnt matter if i have *Dni* or *Dniu*
  - __Do not copy__ my skins , or styles. I will find you
  - Im usually __AFK__. i leave my computer on when i go to places sometimes , so be paitent. Replies will be veryvery late.
- - Find me ! ; Dawn Emerson , my oc's , Sienna Shaw , Any Feral Pride Cosplays , Amanda Young , Lynn Denlon , Anita Lesnicki
+ - Find me ! ; Dawn Emerson , my oc's , Sienna Shaw , tara heyes , Any Feral Pride Cosplays , Amanda Young , Lynn Denlon , Anita Lesnicki
 <img width="1024" height="83" alt="divider" src="https://github.com/user-attachments/assets/5cd318cd-85c4-4778-9c41-2d7cb5672cfd" />
 
 
