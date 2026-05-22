@@ -44,7 +44,6 @@ __boy__. but ONLY use __They/Them__
  - __C+H FREELY ANYTIME !__ It doesnt matter if i have *Dni* or *Dniu*
  - __Do not copy__ my skins , or styles. I will find you
  - Im usually __AFK__. i leave my computer on when i go to places sometimes , so be paitent. Replies will be veryvery late.
- - Find me ! ; Dawn Emerson , my oc's , Sienna Shaw , tara heyes , Any Feral Pride Cosplays , Amanda Young , Lynn Denlon , Anita Lesnicki
 <img width="1024" height="83" alt="divider" src="https://github.com/user-attachments/assets/5cd318cd-85c4-4778-9c41-2d7cb5672cfd" />
 
 
