@@ -15,6 +15,17 @@ __boy__. but ONLY use __They/Them__
 - furry
 - im __MEXICAN , AMERICAN__
 - Ask for socials , but 90% of them are milliesaxe of some sort
+
+<div align="center">
+ 
+ <img width="99" height="56" alt="werewolves" src="https://github.com/user-attachments/assets/1cdd0106-d3ed-445e-85a8-d6d2b6c8da89" /> <img width="99" height="56" alt="wolf eyes" src="https://github.com/user-attachments/assets/b9f1fa9b-5ce6-44a8-94ca-95e90b0d6e3a" /> <img width="99" height="56" alt="better than vampires" src="https://github.com/user-attachments/assets/11432012-6a0a-4bd8-92c1-fa6283ecbf1a" /> <img width="99" height="56" alt="wolf" src="https://github.com/user-attachments/assets/c889e1ee-7f5d-4775-8efd-c767a7acb2ea" /> <img width="99" height="56" alt="wolf dog" src="https://github.com/user-attachments/assets/63679d0c-bac3-4356-a700-4a74cec4bc52" />
+ 
+ </div>
+
+
+
+
+
 <div align="center">
 
 [Strawpage 1](https://milliesaxee.straw.page) - [Strawpage 2](https://milliesaxe.straw.page) - [Rentry](https://rentry.co/milliesaxe)
