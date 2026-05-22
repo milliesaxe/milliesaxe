@@ -9,11 +9,11 @@
 - I am __Amanda__ , rachel , jill , sidney. You may know me as miliesaxe tho
 - Im intersex , and i use __They / Them__ strictly. __Any terms__ are okay. Exp; they are a gorgeous __girl__ , they are such a cool 
 __boy__. but ONLY use __They/Them__
-- Im lesbian , and aroace. Single (bmgf /j)
+- Im lesbian , and aroace. Single
 - Yumeshipper , and fictkin
 - ~~petplayer (not in a problematic way~~
 - furry
-- im __MEXICAN , AMERICAN__ . English is my first language. I know very little spanish now (rip)
+- im __MEXICAN , AMERICAN__
 - Ask for socials , but 90% of them are milliesaxe of some sort
 <div align="center">
 
@@ -24,12 +24,7 @@ __boy__. but ONLY use __They/Them__
 
 <img width="1024" height="83" alt="bats" src="https://github.com/user-attachments/assets/2f24427f-c3dd-442e-9df6-d15b37f0095f" />
 
-- __BYI__ I have BPD , autism , Adhd , Chronic migraines, Dyslexia , and more !! . i MIGHT have scoliosis (99% chance i do)
-- __BYI 2__ I struggle with my tone, and i am NOT sensitive.
-- __BYI 3__ I am __NOT__ a system , nor do i regress.
-- __BYI 4__ I make freaky jokes, if youre not comfy with them please tell me
-- __BYI 5__ __I am NOT nice.__ im in therapy and i go to my psychologist to HELP ME become nicer. I am only really nice towards MY friends. PlsPLS tell me if im rude so i can fix it.
-- __BYI 6__ I am on 11-12 prescribed pills, so be paitent with me. It sucks but i haveto di it for my own sanity
+- __BYI__ ; I have bpd , autism , dyslexia , adhd , and scoliosis. __i am NOT the nicest if you dont seem like we share interests, but mostly im rude.__ i apologize, but i cannot help it. I struggle with my tone, and im __NOT SENSITIVE__. i make freaky jokes , if youre uncomfy please tell me. __I AM NOT. A SYSTEM, NOR DO I REGRESS.__
 - __DNI__ ICE JOKES , MAGA , PROSHIPPERS , GROOMERS , RACISTS , HOMOPHOBICS , TRANSPHOBIC , ABLEISTS , ex friends , my exs , Just freaks in general , Basic dnis ok
  <img width="1024" height="83" alt="divider" src="https://github.com/user-attachments/assets/0727d397-8e6e-4bfb-a69c-f9ffe8f41833" />
 
