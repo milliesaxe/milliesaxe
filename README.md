@@ -11,6 +11,7 @@
 __boy__. but ONLY use __They/Them__
 - Im lesbian , and aroace. Single
 - Yumeshipper , and fictkin
+- discord is - milliesaxe
 - ~~petplayer (not in a problematic way~~
 - furry
 - im __MEXICAN , AMERICAN__
