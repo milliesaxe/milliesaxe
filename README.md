@@ -12,7 +12,7 @@ __boy__. but ONLY use __They/Them__
 - Im lesbian , and aroace. Single
 - Yumeshipper , and fictkin
 - discord is - milliesaxe
-- ~~petplayer (not in a problematic way~~
+- ~~petplayer~~
 - im a pet regressor (i shift into a wolf headspace). this helps me calm down while splitting !! ;p
 - furry
 - im __MEXICAN , AMERICAN__
