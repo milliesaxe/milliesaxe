@@ -6,7 +6,7 @@
 
 </div>
 
-- I am __Amanda__ , rachel , jill , sidney. You may know me as miliesaxe tho
+- I am __Amanda__ , __Jennifer__ You may know me as miliesaxe tho
 - Im intersex , and i use __They / Them__ strictly. __Any terms__ are okay. Exp; they are a gorgeous __girl__ , they are such a cool 
 __boy__. but ONLY use __They/Them__
 - Im lesbian , and aroace. Single
