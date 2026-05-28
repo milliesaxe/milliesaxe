@@ -19,7 +19,7 @@ __boy__. but ONLY use __They/Them__
 - Yumeshipper , and fictkin
 - discord is - milliesaxe
 - ~~petplayer~~
-- im a pet regressor (i shift into a wolf headspace). this helps me calm down while splitting !! ;p
+- im a pet regressor (i shift into a wolf headspace). this helps me calm down when im really stressed !! i usually go nonverbal tho  ;pp
 - furry
 - im __MEXICAN , AMERICAN__
 - Ask for socials , but 90% of them are milliesaxe of some sort
