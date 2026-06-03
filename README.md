@@ -18,7 +18,6 @@ __boy__. but ONLY use __They/Them__
 - Im lesbian , and aroace. Single
 - Yumeshipper , and fictkin
 - discord is - milliesaxe
-- ~~pet regressor, wolf. im usually nonverbal, or very energetic~~
 - furry
 - im __MEXICAN , AMERICAN__
 - Ask for socials , but 90% of them are milliesaxe of some sort
