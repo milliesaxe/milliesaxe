@@ -13,14 +13,21 @@
 </div>
 
 - I am __Amanda__ , __Jennifer__ You may know me as miliesaxe tho
-- Im intersex , and i use __They / Them__ strictly. __Any terms__ are okay. Exp; they are a gorgeous __girl__ , they are such a cool 
-__boy__. but ONLY use __They/Them__
+- Im intersex , and i use __They / Them__ 
 - Im lesbian , and aroace. Single
 - Yumeshipper , and fictkin
 - discord is - milliesaxe
 - furry
+- pet regressor - wolf
 - im __MEXICAN , AMERICAN__
 - Ask for socials , but 90% of them are milliesaxe of some sort
+- obsession OBSESSED freako lesbinan -_-
+-
+ <div align="center">
+
+[NON-Sharing Nikki Freeman yume . ](https://villains.fandom.com/wiki/Nikki_Freeman)
+
+</div>
 
 <div align="center">
  
@@ -41,7 +48,7 @@ __boy__. but ONLY use __They/Them__
 
 <img width="1024" height="83" alt="bats" src="https://github.com/user-attachments/assets/2f24427f-c3dd-442e-9df6-d15b37f0095f" />
 
-- __BYI__ ; I have bpd , autism , dyslexia , adhd , and scoliosis. __i am NOT the nicest if you dont seem like we share interests, but mostly im rude.__ i apologize, but i cannot help it. I struggle with my tone, and im __NOT SENSITIVE__. i make freaky jokes , if youre uncomfy please tell me. __I AM NOT. A SYSTEM__
+- __BYI__ ; I have bpd , autism , dyslexia , adhd, +more. __i am NOT the nicest if you dont seem like we share interests, but mostly im rude.__ i apologize, but i cannot help it. I struggle with my tone, and im __NOT SENSITIVE__. i make freaky jokes , if youre uncomfy please tell me. __I AM NOT. A SYSTEM__
 - __DNI__ ICE JOKES , MAGA , PROSHIPPERS , GROOMERS , RACISTS , HOMOPHOBICS , TRANSPHOBIC , ABLEISTS , ex friends , my exs , Just freaks in general , Basic dnis ok
  <img width="1024" height="83" alt="divider" src="https://github.com/user-attachments/assets/0727d397-8e6e-4bfb-a69c-f9ffe8f41833" />
 
