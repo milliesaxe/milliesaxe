@@ -12,13 +12,13 @@
 
 </div>
 
-- I am __Amanda__ , __Jennifer__ You may know me as miliesaxe tho
+- I am __Amanda__ , __Jennifer , or rachel !__ You may know me as miliesaxe tho
 - Im intersex , and i use __They / Them__ 
-- Im lesbian , and aroace. Single
+- Im lesbian, Single
 - Yumeshipper , and fictkin
 - discord is - milliesaxe
 - furry
-- pet regressor - wolf
+- pet regressor - wolf. eys im a freak but  i swear imm a cool freak
 - im __MEXICAN , AMERICAN__
 - Ask for socials , but 90% of them are milliesaxe of some sort
 - obsession OBSESSED freako lesbinan -_-
