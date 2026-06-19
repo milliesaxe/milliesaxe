@@ -18,6 +18,7 @@
 - Yumeshipper , and fictkin
 - discord is - milliesaxe
 - furry
+- pls bmf, i dont talk to anyone;//
 - pet regressor - wolf. eys im a freak but  i swear imm a cool freak
 - im __MEXICAN , AMERICAN__
 - Ask for socials , but 90% of them are milliesaxe of some sort
