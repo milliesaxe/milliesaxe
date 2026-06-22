@@ -20,9 +20,10 @@
 - furry
 - pls bmf, i dont talk to anyone;//
 - pet regressor - wolf. eys im a freak but  i swear imm a cool freak
-- im __MEXICAN , AMERICAN__
+- __MEXICAN , AMERICAN__
 - Ask for socials , but 90% of them are milliesaxe of some sort
 - obsession OBSESSED freako lesbinan -_-
+- __6/17/2026__ w nikki freeman <3
 -
  <div align="center">
 
