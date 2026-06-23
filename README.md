@@ -80,6 +80,10 @@
 <img width="150" height="20" alt="0167-saw" src="https://github.com/user-attachments/assets/5587b749-1f2a-4a1f-b233-6d04634e3cff" /> <img width="150" height="20" alt="0113-autism" src="https://github.com/user-attachments/assets/8fe4749b-df34-4060-bee5-edb8e611db3e" /> <img width="150" height="20" alt="0110-yeah" src="https://github.com/user-attachments/assets/6f153ae9-55e5-45bc-bca3-54e5eabd5c4e" /> <img width="150" height="20" alt="0099-ballcplpinkpink" src="https://github.com/user-attachments/assets/184ea4c9-86b2-4267-8f71-8d332326d871" /> <img width="150" height="20" alt="0072-lesbian" src="https://github.com/user-attachments/assets/bf20341a-1347-49f7-89d1-6cf187310f07" /> <img width="150" height="20" alt="0061-pinkcomputer" src="https://github.com/user-attachments/assets/9e21184f-bb6b-4294-afd5-9528b491f080" /> <img width="150" height="20" alt="0052-cancer" src="https://github.com/user-attachments/assets/cf53fdc9-9674-413a-a392-5fbdd1f4bf42" /> <img width="150" height="20" alt="0031-dogpaw" src="https://github.com/user-attachments/assets/2a9a83ae-574c-4d97-9bd0-a70a34e934a5" /> 
 
 
+<img width="99" height="56" alt="twilight" src="https://github.com/user-attachments/assets/13bde326-85aa-4ba3-bc50-4cfbdab3fa68" /> <img width="99" height="56" alt="silent hill" src="https://github.com/user-attachments/assets/bd824672-bacf-416a-a658-940cbc1e769b" /> 
+
+
+
 
  
 
