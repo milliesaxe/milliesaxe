@@ -22,7 +22,7 @@
 - pet regressor - wolf. eys im a freak but  i swear imm a cool freak
 - __MEXICAN , AMERICAN__
 - Ask for socials , but 90% of them are milliesaxe of some sort
-- obsession OBSESSED freako lesbian -_-
+- obsession OBSESSED freako Lesbian -_-
 - __6/17/2026__ w nikki freeman <3
 -
  <div align="center">
