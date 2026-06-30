@@ -15,6 +15,7 @@
 - I am __Amanda__ , __Jennifer , or rachel !__ You may know me as miliesaxe tho
 - Im intersex , and i use __They / Them__ 
 - Im lesbian, Single
+- hi guys i love my bestfriend matthew
 - Yumeshipper , and fictkin
 - discord is - milliesaxe
 - furry
