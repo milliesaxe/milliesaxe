@@ -12,7 +12,7 @@
 
 </div>
 
-- I am __Amanda__ , __Jennifer , or rachel !__ You may know me as miliesaxe tho
+- I am __NIKKI , AMANDA , OR ANYTHING__ !__ You may know me as miliesaxe tho
 - Im intersex , and i use __They / Them__ 
 - Im lesbian, Single
 - hi guys i love my bestfriend matthew
