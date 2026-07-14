@@ -15,7 +15,7 @@
 - I am __NIKKI , AMANDA , OR ANYTHING__ !__ You may know me as miliesaxe tho
 - Im intersex , and i use __SHE / THEY__ 
 - Im lesbian, Single
-- hi guys i love my bestfriend matthew
+- hi guys i love my bestfriend nameaccessdenied (yk who u are boi)
 - Yumeshipper , and fictkin
 - discord is - milliesaxe
 - furry
