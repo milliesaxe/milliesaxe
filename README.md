@@ -12,10 +12,9 @@
 
 </div>
 
-- I am __Nikki , amanda__ You may know me as miliesaxe tho
-- Im intersex , and i use __SHE / THEY__ 
-- Im lesbian, Single
-- hi guys i love my bestfriend ghostlywhiskers (yk who u are boi)
+- I am __Samantha/sam , hayley__ You may know me as miliesaxe tho
+- Im intersex , and i use any pronouns, mostly they them
+- Im aa chapstick lesbian, Single
 - Yumeshipper , and fictkin
 - discord is - milliesaxe
 - furry
@@ -23,7 +22,6 @@
 - pet regressor - wolf. eys im a freak but  i swear imm a cool freak
 - __MEXICAN , AMERICAN__
 - Ask for socials , but 90% of them are milliesaxe of some sort
-- obsession OBSESSED freako Lesbian -_-
 - __6/17/2026__ w nikki freeman <3
 -
  <div align="center">
