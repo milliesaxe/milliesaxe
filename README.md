@@ -12,7 +12,7 @@
 
 </div>
 
-- I am __Samantha/sam , hayley__ You may know me as miliesaxe tho
+- heellooo !! my name is Malibu, or valentine ^_^ check my strawpagefor the other names 
 - Im intersex , and i use any pronouns, mostly they them
 - Im aa chapstick lesbian, Single
 - Yumeshipper , and fictkin
