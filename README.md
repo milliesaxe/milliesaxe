@@ -14,7 +14,7 @@
 
 - heellooo !! my name is Malibu, or valentine ^_^ check my strawpagefor the other names 
 - Im intersex , and i use any pronouns, mostly they them
-- Im aa chapstick lesbian, Single
+- Im aa chapstick lesbian, Single. im also aroace
 - Yumeshipper , and fictkin
 - discord is - milliesaxe
 - furry
