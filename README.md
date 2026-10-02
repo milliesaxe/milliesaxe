@@ -12,7 +12,7 @@
 
 </div>
 
-- heellooo !! my name is Malibu, or valentine ^_^ check my strawpagefor the other names 
+- heellooo !! my name is Misty ^_^ check my strawpagefor the other names 
 - Im intersex , and i use any pronouns, mostly they them
 - seventeen , and the real misty quigley
 - Im aa chapstick lesbian, Single. im also aroace
