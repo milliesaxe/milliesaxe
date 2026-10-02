@@ -14,6 +14,7 @@
 
 - heellooo !! my name is Malibu, or valentine ^_^ check my strawpagefor the other names 
 - Im intersex , and i use any pronouns, mostly they them
+- seventeen , and the real misty quigley
 - Im aa chapstick lesbian, Single. im also aroace
 - Yumeshipper , and fictkin
 - discord is - milliesaxe
@@ -22,11 +23,8 @@
 - pet regressor - wolf. eys im a freak but  i swear imm a cool freak
 - __MEXICAN , AMERICAN__
 - Ask for socials , but 90% of them are milliesaxe of some sort
-- __6/17/2026__ w nikki freeman <3
 -
  <div align="center">
-
-[NON-Sharing Nikki Freeman yume . ](https://villains.fandom.com/wiki/Nikki_Freeman)
 
 </div>
 
