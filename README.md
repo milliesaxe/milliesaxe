@@ -16,7 +16,7 @@
 - Im intersex , and i use any pronouns, mostly they them
 - real life diagnosed werewolf !!
 - seventeen , and the real misty quigley. misty doubles dni ples okay thanks.
-- Im aa chapstick lesbian. men do not flirt with me
+- Im aa chapstick lesbian. men do not flirt with me i will kms. i think love is stupid and not for me
 - discord is - milliesaxe
 - pls bmf, i dont talk to anyone;//
 - pet regressor - wolf. eys im a freak but  i swear imm a cool freak
