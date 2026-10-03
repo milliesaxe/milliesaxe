@@ -14,6 +14,7 @@
 
 - heellooo !! my name is Misty ^_^ check my strawpagefor the other names 
 - Im intersex , and i use any pronouns, mostly they them
+- real life diagnosed werewolf !!
 - seventeen , and the real misty quigley. misty doubles dni ples okay thanks.
 - misty yumes int freely youguys are canon- real misty brtw
 - Im aa chapstick lesbian, Single. im also aroace
@@ -54,7 +55,7 @@
 - __DNI__ ICE JOKES , MAGA , PROSHIPPERS , GROOMERS , RACISTS , HOMOPHOBICS , TRANSPHOBIC , ABLEISTS , ex friends , my exs , Just freaks in general , Basic dnis ok
  <img width="1024" height="83" alt="divider" src="https://github.com/user-attachments/assets/0727d397-8e6e-4bfb-a69c-f9ffe8f41833" />
 
- - I am usually alone since my friends dont really like me lolololol
+ - I am usually alone since i have no friends ok
  - PLEASE __W2I__ , im usually offtab, or in the menu. My replies may be slow, or fast. It depends
  - __C+H FREELY ANYTIME !__ It doesnt matter if i have *Dni* or *Dniu*
  - __Do not copy__ my skins 
@@ -62,7 +63,6 @@
 
 
 - im obsessed with wolves, or any type of canines
-- __They make me very excited to talk about__
 - I love animals !
 - I seen rob zombie live !! __9/14/26__ ㅤꨄ︎
  <p align="center">
