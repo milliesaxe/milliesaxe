@@ -16,15 +16,12 @@
 - Im intersex , and i use any pronouns, mostly they them
 - real life diagnosed werewolf !!
 - seventeen , and the real misty quigley. misty doubles dni ples okay thanks.
-- misty yumes int freely youguys are canon- real misty brtw
-- Im aa chapstick lesbian, Single. im also aroace
-- Yumeshipper , and fictkin
+- Im aa chapstick lesbian. men do not flirt with me
 - discord is - milliesaxe
-- furry
 - pls bmf, i dont talk to anyone;//
 - pet regressor - wolf. eys im a freak but  i swear imm a cool freak
-- __MEXICAN , AMERICAN__
-- Ask for socials , but 90% of them are milliesaxe of some sort
+- mexican american
+- Ask for socials
 -
  <div align="center">
 
@@ -51,14 +48,14 @@
 
 <img width="1024" height="83" alt="bats" src="https://github.com/user-attachments/assets/2f24427f-c3dd-442e-9df6-d15b37f0095f" />
 
-- __BYI__ ; I have bpd , autism , dyslexia , adhd, +more. __i am NOT the nicest if you dont seem like we share interests, but mostly im rude.__ i apologize, but i cannot help it. I struggle with my tone, and im __NOT SENSITIVE__. i make freaky jokes , if youre uncomfy please tell me. __I AM NOT. A SYSTEM__
+- __BYI__ ; I have bpd , autism  +more. __i am NOT the nicest__ i apologize, but i cannot help it. I struggle with my tone, and im not sensitive. i make freaky jokes , if youre uncomfy just tell me. __I AM NOT. A SYSTEM__
 - __DNI__ ICE JOKES , MAGA , PROSHIPPERS , GROOMERS , RACISTS , HOMOPHOBICS , TRANSPHOBIC , ABLEISTS , ex friends , my exs , Just freaks in general , Basic dnis ok
  <img width="1024" height="83" alt="divider" src="https://github.com/user-attachments/assets/0727d397-8e6e-4bfb-a69c-f9ffe8f41833" />
 
  - I am usually alone since i have no friends ok
  - PLEASE __W2I__ , im usually offtab, or in the menu. My replies may be slow, or fast. It depends
- - __C+H FREELY ANYTIME !__ It doesnt matter if i have *Dni* or *Dniu*
- - __Do not copy__ my skins 
+ -c+h freely, It doesnt matter if i have dni in my name
+ - just dont copy my skins please
 <img width="1024" height="83" alt="divider" src="https://github.com/user-attachments/assets/5cd318cd-85c4-4778-9c41-2d7cb5672cfd" />
 
 
