@@ -54,17 +54,17 @@
 - __DNI__ ICE JOKES , MAGA , PROSHIPPERS , GROOMERS , RACISTS , HOMOPHOBICS , TRANSPHOBIC , ABLEISTS , ex friends , my exs , Just freaks in general , Basic dnis ok
  <img width="1024" height="83" alt="divider" src="https://github.com/user-attachments/assets/0727d397-8e6e-4bfb-a69c-f9ffe8f41833" />
 
- - I am usually alone , with my friends , or with my party. Im usually alone yho
+ - I am usually alone since my friends dont really like me lolololol
  - PLEASE __W2I__ , im usually offtab, or in the menu. My replies may be slow, or fast. It depends
  - __C+H FREELY ANYTIME !__ It doesnt matter if i have *Dni* or *Dniu*
- - __Do not copy__ my skins , or styles. I will find you
+ - __Do not copy__ my skins 
 <img width="1024" height="83" alt="divider" src="https://github.com/user-attachments/assets/5cd318cd-85c4-4778-9c41-2d7cb5672cfd" />
 
 
-- im obsessed with wolves, or any type of canines, and rats. Please ask me about them
+- im obsessed with wolves, or any type of canines
 - __They make me very excited to talk about__
 - I love animals !
-- Im seeing rob zombie live !! __9/14/26__ ㅤꨄ︎
+- I seen rob zombie live !! __9/14/26__ ㅤꨄ︎
  <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=316agiybjugelgby7uld7gpf4d6e&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false">
