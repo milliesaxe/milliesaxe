@@ -15,6 +15,7 @@
 - heellooo !! my name is Misty ^_^ check my strawpagefor the other names 
 - Im intersex , and i use any pronouns, mostly they them
 - real life diagnosed werewolf !!
+- **HUGE olivia rodrigo fangirl** <3 + paramore
 - seventeen , and the real misty quigley. misty doubles dni ples okay thanks.
 - Im aa chapstick lesbian. men do not flirt with me i will kms. i think love is stupid and not for me
 - discord is - milliesaxe
