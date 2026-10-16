@@ -13,7 +13,7 @@
 </div>
 
 - heellooo !! my name is Misty ^_^ check my strawpagefor the other names 
-- Im intersex , and i use any pronouns, mostly they them
+- Im intersex , and i use any pronouns, mostly they them. im mexican / latina
 - real life diagnosed werewolf !!
 - i ghost people, as i cannot handle conversations for long periods of times. Dont get attatched!! lol!!
 - **HUGE olivia rodrigo fangirl** <3 + paramore
@@ -22,7 +22,6 @@
 - discord is - milliesaxe
 - pls bmf, i dont talk to anyone;//
 - pet regressor - wolf. eys im a freak but  i swear imm a cool freak
-- mexican american
 - Ask for socials
 -
  <div align="center">
