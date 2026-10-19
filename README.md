@@ -51,7 +51,8 @@
 
 - __BYI__ ; I have bpd , autism  +more. __i am NOT the nicest__ i apologize, but i cannot help it. I struggle with my tone, and im not sensitive. i make freaky jokes , if youre uncomfy just tell me. __I AM NOT. A SYSTEM__
 - __DNI__ ICE JOKES , MAGA , PROSHIPPERS , GROOMERS , RACISTS , HOMOPHOBICS , TRANSPHOBIC , ABLEISTS , ex friends , my exs , Just freaks in general , Basic dnis ok
-- __boundaries__ dont flirt w me under 16, + 20+ im a minor still. 
+- __boundaries__ dont flirt w me under 16, + 20+ im a minor still.
+- "09:31 PM[:/] whispers: you should end yourself." ok dada nghh
  <img width="1024" height="83" alt="divider" src="https://github.com/user-attachments/assets/0727d397-8e6e-4bfb-a69c-f9ffe8f41833" />
 
  - I am usually alone since i have no friends ok
