@@ -16,11 +16,10 @@
 - Im intersex , and i use any pronouns, mostly they them. im mexican / latina
 - real life diagnosed werewolf !!
 - i ghost people, as i cannot handle conversations for long periods of times. Dont get attatched!! lol!!
-- **HUGE olivia rodrigo fangirl** <3 + paramore
 - the real misty quigley. misty doubles dni ples okay thanks.
 - Im aa chapstick lesbian. men do not flirt with me i will kms. i think love is stupid and not for me
 - discord is - milliesaxe
-- pls bmf, i dont talk to anyone;//
+- the hive gc !! <3 i love ALL 31 of you, but ruby, and brielle are my babys. #MARISHAUNA TRUTH
 - pet regressor - wolf. eys im a freak but  i swear imm a cool freak
 - Ask for socials
 -
