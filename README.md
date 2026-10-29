@@ -12,11 +12,11 @@
 
 </div>
 
-- heellooo !! my name is Misty ^_^ check my strawpagefor the other names 
+- heellooo !! my name is Misty or natalie ^_^ send a gimmick on my SP to askfor other names
 - Im intersex , and i use any pronouns, mostly they them. im mexican / latina
 - real life diagnosed werewolf !!
 - i ghost people, as i cannot handle conversations for long periods of times. Dont get attatched!! lol!!
-- the real misty quigley. misty doubles dni ples okay thanks.
+- the real misty quigley. misty doubles dni ples okay thanks. imalso the real natalie scatorccio !!! doubles iwec ok? ok
 - Im aa chapstick lesbian. men do not flirt with me i will kms. i think love is stupid and not for me
 - discord is - milliesaxe
 - the hive gc !! <3 i love ALL 31 of you, but ruby is my baby. #MARISHAUNA TRUTH
