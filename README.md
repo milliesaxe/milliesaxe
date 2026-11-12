@@ -12,15 +12,15 @@
 
 </div>
 
-- heellooo !! my name is Misty or natalie ^_^ send a gimmick on my SP to askfor other names
+- heellooo !! my name is Misty or natalie . pref misty ^_^ send a gimmick on my SP to askfor other names
 - Im intersex , and i use any pronouns, mostly they them. im mexican / latina
 - real life diagnosed werewolf !!
-- i ghost people, as i cannot handle conversations for long periods of times. Dont get attatched!! lol!!
-- the real misty quigley. misty doubles dni ples okay thanks. imalso the real natalie scatorccio !!! doubles iwec ok? ok
-- Im aa chapstick lesbian. men do not flirt with me i will kms. i think love is stupid and not for me
+- i ghost people, as i cannot handle conversations for long periods of times. Dont get attatched!!
+- i have three monitors but replies will still be slow
+- the real misty quigley. misty doubles dni ples okay thanks.
+- Im aa chapstick lesbian. men do not flirt with me i will kms. 
 - discord is - milliesaxe
-- the hive gc !! <3 i love ALL 31 of you, but ruby is my baby. 
-- pet regressor - wolf. eys im a freak but  i swear imm a cool freak
+- davhie my bestbest best friend. My wedns <3
 - Ask for socials
 -
  <div align="center">
