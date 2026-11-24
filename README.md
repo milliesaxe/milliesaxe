@@ -15,6 +15,7 @@
 - heellooo !! my name is Misty or natalie . pref misty ^_^ send a gimmick on my SP to askfor other names
 - Im intersex , and i use any pronouns, mostly they them. im mexican / latina
 - real life diagnosed werewolf !!
+- english only ok im no sabo SO fucking sorry.
 - i ghost people
 - i have three monitors but replies will still be slow
 - the real misty quigley. misty doubles dni ples okay thanks.
