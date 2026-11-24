@@ -15,7 +15,7 @@
 - heellooo !! my name is Misty or natalie . pref misty ^_^ send a gimmick on my SP to askfor other names
 - Im intersex , and i use any pronouns, mostly they them. im mexican / latina
 - real life diagnosed werewolf !!
-- i ghost people, as i cannot handle conversations for long periods of times. Dont get attatched!!
+- i ghost people
 - i have three monitors but replies will still be slow
 - the real misty quigley. misty doubles dni ples okay thanks.
 - Im aa chapstick lesbian. men do not flirt with me i will kms. 
@@ -50,14 +50,14 @@
 
 - __BYI__ ; I have bpd , autism  +more. __i am NOT the nicest__ i apologize, but i cannot help it. I struggle with my tone, and im not sensitive. i make freaky jokes , if youre uncomfy just tell me. __I AM NOT. A SYSTEM__
 - __DNI__ ICE JOKES , MAGA , PROSHIPPERS , GROOMERS , RACISTS , HOMOPHOBICS , TRANSPHOBIC , ABLEISTS , ex friends , my exs , Just freaks in general , Basic dnis ok
-- __boundaries__ dont flirt w me under 16, + 20+ im a minor still.
+- __boundaries__ idk
 - "09:31 PM[:/] whispers: you should end yourself." ok dada nghh
  <img width="1024" height="83" alt="divider" src="https://github.com/user-attachments/assets/0727d397-8e6e-4bfb-a69c-f9ffe8f41833" />
 
  - I am usually alone since i have no friends ok
  - PLEASE __W2I__ , im usually offtab, or in the menu. My replies may be slow, or fast. It depends
  -c+h freely, It doesnt matter if i have dni in my name
- - just dont copy my skins please
+ - just dont copy my skins oky
 <img width="1024" height="83" alt="divider" src="https://github.com/user-attachments/assets/5cd318cd-85c4-4778-9c41-2d7cb5672cfd" />
 
 
