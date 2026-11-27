@@ -12,13 +12,13 @@
 
 </div>
 
-- heellooo !! my name is Misty or natalie . pref misty ^_^ send a gimmick on my SP to askfor other names
+- heello. my name is Misty or natalie . pref misty. send a gimmick on my SP to askfor other names
 - Im intersex , and i use any pronouns, mostly they them. im mexican / latina
-- real life diagnosed werewolf !!
+- real life diagnosed werewolf
 - english only ok im no sabo SO fucking sorry.
 - i ghost people
 - i have three monitors but replies will still be slow
-- the real misty quigley. misty doubles dni ples okay thanks.
+- the real misty quigley. misty doubles int okiii.. eyes emoji
 - Im aa chapstick lesbian. men do not flirt with me i will kms. 
 - discord is - milliesaxe
 - davhie my bestbest best friend. My wedns <3
@@ -50,7 +50,7 @@
 <img width="1024" height="83" alt="bats" src="https://github.com/user-attachments/assets/2f24427f-c3dd-442e-9df6-d15b37f0095f" />
 
 - __BYI__ ; I have bpd , autism  +more. __i am NOT the nicest__ i apologize, but i cannot help it. I struggle with my tone, and im not sensitive. i make freaky jokes , if youre uncomfy just tell me. __I AM NOT. A SYSTEM__
-- __DNI__ ICE JOKES , MAGA , PROSHIPPERS , GROOMERS , RACISTS , HOMOPHOBICS , TRANSPHOBIC , ABLEISTS , ex friends , my exs , Just freaks in general , Basic dnis ok
+- __DNI__ ICE JOKES , MAGA , GROOMERS , RACISTS , HOMOPHOBICS , TRANSPHOBIC , ABLEISTS , ex friends , my exs , Just freaks in general , Basic dnis ok
 - __boundaries__ idk
 - "09:31 PM[:/] whispers: you should end yourself." ok dada nghh
  <img width="1024" height="83" alt="divider" src="https://github.com/user-attachments/assets/0727d397-8e6e-4bfb-a69c-f9ffe8f41833" />
