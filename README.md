@@ -12,7 +12,7 @@
 
 </div>
 
-- heello. my name is Misty or natalie . pref misty. send a gimmick on my SP to askfor other names
+- heello. my name is Misty or Lottie . 
 - Im intersex , and i use any pronouns, mostly they them. im mexican / latina
 - real life diagnosed werewolf
 - english only ok im no sabo SO fucking sorry.
